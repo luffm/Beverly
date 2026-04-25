@@ -18,7 +18,7 @@
 ## English Farmhouse
 2023-02-02<br>
 ![English Farmhouse](images/2023-02-02-English_Farmhouse.jpg)
-<br>1000 pieces
+<br>2000 pieces
 
 ## The Story of the Starry Sky - 48 Constellations
 2022-10-25<br>
